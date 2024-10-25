@@ -96,6 +96,6 @@ I have prepeared a few screenshots, which will show you how you can contribute t
 5. For the last step you get this screen shown in the screenshot, which is a way for you to check if everything is as you wanted it. Then you press the green button within the red square named "Create pull request". You don't have to change anything else. Once you press the button, I will receive your request. "Pull request" means that you have changes and propose them and I look at them and if I want them "pull" them into the original. Congratulations, you made it to the end and have contributed to the fanfiction.
 
 ## Discussions
-![Screenshot of thze front page showing an red encircled Discussion tab](/Guides/GFX/Discussion.PNG)
+![Screenshot of the front page showing an red encircled Discussion tab](/Guides/GFX/Discussions.PNG)
 
 In this screenshot you can see the front page and a red square around the tab for Discussions. Discussions are basically the comment section on GitHub. Here you can converse and talk with the comunity if you want to.
