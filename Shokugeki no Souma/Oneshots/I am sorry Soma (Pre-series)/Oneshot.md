@@ -12,7 +12,7 @@
 
 “Then I will feed you while you walk, one bite is all you need to say it is delicious!” Soma chuckled, to which Erina stopped in her track almost making him run into her as she turned around with a sharp motion, her hair hitting his face.
 
-“Now listen here Yukihira! I will never call your food anything but disgusting, you second grade chef, so just let me be with this topic already!” She snapped, Soma visibly wincing at that. Megumi felt anger boil up inside of her at that treatment for the uptenth time, but as she looked to Erina, she could see her immediate regret. Guilt all over her face. So she breathed a sigh and let it play out; at least she intended it to.
+“Now listen here Yukihira! I will never call your food anything but disgusting, you second grade chef, so just let me be with this topic already!” She snapped, Soma visibly wincing at that. Megumi felt anger boil up inside of her at that treatment for the umpteenth time, but as she looked to Erina, she could see her immediate regret. Guilt all over her face. So she breathed a sigh and let it play out; at least she intended it to.
 
 “Soma…” Erina started but was cut off before she could say anything. 
 
