@@ -197,3 +197,5 @@ Shikamaru could feel the fatigue slowly take over, as he finally was able to com
 His eyes grew heavy and closed, his limbs fell limp the only thing still registering in his mind the slow circles the blond was rubbing into his back. A single tear escaped his eye before he lost consciousness. Temari the last thing he saw, looking disgusted of him before she faded away.
 
 *How has it come to this?*
+
+[Back](/Naruto/Oneshots/Shikamaru%20breaks%20(Pre-series)/README.md)

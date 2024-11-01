@@ -63,3 +63,5 @@ Nakiri just stared into his eyes, searching his soul, making him feel naked bene
 “Please… just… just let me die…” He begged as his voice grew hollow and his legs gave out, making him fall to his knees. To his surprise Nakiri followed, her arms now flying around him in an urgent and tight embrace.
 
 “What… What are you saying?!” She cried into his shoulder while she held onto him like her life depended on it. “I… You… Baka!”
+
+[Back](/Shokugeki%20no%20Souma/Oneshots/Freezing%20(Pre-series)/README.md)

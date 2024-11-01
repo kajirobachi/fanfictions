@@ -167,3 +167,5 @@ Holding their bleeding faces they ran for it as fast as they possibly could, alm
 His slight smile shone like the brightest torch in the darkest cave, illuminating the dark and lonely feelings she had filled her heart with. His imperceptibly waving golden locks reminded her of the sun itself, gleaming around his face as if he was an angel sent by the heavens. Hinata immediately forgot where she was and lost herself inside his glimmering eyes, almost forgetting to breathe.
 
 Who is he?
+
+[Back](/Naruto/Oneshots/Can%20love%20fix%20this%20(Pre-series)/README.md)

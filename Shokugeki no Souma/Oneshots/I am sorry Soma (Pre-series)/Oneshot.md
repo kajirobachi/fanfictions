@@ -71,3 +71,5 @@ Erina fell to her knees as Soma turned the corner, holding her head in her hands
 “I-I don’t know…” Erina stuttered.
 
 Everyone was silent, nobody knew what to do. Eventually they all recovered and with the help of Hisako, who had seen everything as well, even Erina was moving again. Soma was nowhere to be found though. They couldn’t just leave and search for him, Erina least of all, so they had to wait till the exam was over and their jobs done, before they rushed outside in a search for him. Erina was close to a breakdown, she just needed to see her redhead and apologize, she didn’t know what to say, but Megumi had made her promise she would.
+
+[Back](/Shokugeki%20no%20Souma/Oneshots/I%20am%20sorry%20Soma%20(Pre-series)/README.md)

@@ -307,3 +307,5 @@ He just gestured to the hole in the wall behind him.
 “Ahsoka come on… you know full and well that you are better off without me. You severed all the ties to your old life for a reason after all. You cannot save me… you cannot save the order. Hell, I cannot even save myself, there is nothing left to save. I fulfilled my purpose and now I wait till the force decides that my time has come to die and go over into the living force… or whatever Yoda taught about this mumbo jumbo… Just go, live your life… be happy… just leave me behind.” 
 
 “Not happening! … I left you once, that’s a mistake I will not repeat again.”
+
+[Back](/Star%20Wars/Oneshots/I%20am%20not%20leaving%20again%20(Pre-series)/README.md)
