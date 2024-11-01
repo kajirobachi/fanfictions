@@ -10,6 +10,12 @@ This is where you’ll find the beginnings of potential full-length stories. Eac
 - **The Result**: The oneshot with the most votes will be developed into a multi-chapter series, so your vote truly shapes the future of these stories!
 
 ## Current Poll
+No current polls.
+
+## Finished Polls
+Here reside all the polls already finished.
+
+### First Poll
 *Food Wars! Shokugeki no Soma*
 - [Freezing](/Shokugeki%20no%20Souma/Oneshots/Freezing%20(Pre-series)/README.md)
 - [I am sorry Soma](/Shokugeki%20no%20Souma/Oneshots/I%20am%20sorry%20Soma%20(Pre-series)/README.md)
@@ -22,6 +28,7 @@ This is where you’ll find the beginnings of potential full-length stories. Eac
 - [I am not leaving again](/Star%20Wars/Oneshots/I%20am%20not%20leaving%20again%20(Pre-series)/README.md)
 - [Lost in the Aftermath](/Star%20Wars/Oneshots/Lost%20in%20the%20Aftermath%20(Pre-series)/README.md)
 
-## Finished Polls
+Winner: [I am not leaving again](/Star%20Wars/Oneshots/I%20am%20not%20leaving%20again%20(Pre-series)/README.md), Thank you for the participation!
+![The results of the first poll](/Pre-series%20Oneshots/results/FirstPollResults.png)
 
 [back](/README.md)   

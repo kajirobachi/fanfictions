@@ -70,16 +70,16 @@ Hi , my name is Kajirobachi. I write fanfictions and stories of all kinds ever s
 ### Second note
 Thanks for reading the fic :). I hope you liked it. English is not my first language, so please excuse any inaccuracies or grammatical blunders I may have committed. Feel free to leave a comment if you want to engage with me or the story a bit more.
 
-You can follow me on Instagram for more information on ongoing fics as soon as they come out or if you want to talk and interact with me more. The link is:
+You can follow me on Instagram for more information on ongoing fics as soon as they come out or if you want to talk and interact with me more. The link is: https://www.instagram.com/kajirobachi/
 
-For the ones of you who want to interact with the stories more and maybe want to add to them with corrections or ideas, when allowed by me, please visit my github page under: 
+For the ones of you who want to interact with the stories more and maybe want to add to them with corrections or ideas, when allowed by me, please visit my github page under: https://github.com/kajirobachi/fanfictions
 Do not threat, if you don't know Github. For how I use it, everything is explained there in detail. There every fic also gets posted and you have the direct ability to edit and work on them if you want to. Of course you cannot change anything on a whim without my acknowledgment or permission, but everything you need to know is explained there.
 
-For the poll on which One-shot I make into a series first, you can follow this link:
+The poll has been closed by now and a winner has been chosen. For more information you can look on my Instagram. All the fics will be made into a series eventually though.
 
 Please consider reading the other fanfictions within the collection. If you haven't read it yet, there is one other fic of this fandom too.
 
-Thank you and read you soon :)
+Thank you and read you soon :)  
 
 # Oneshot
 - [I am not leaving again](/Star%20Wars/Oneshots/I%20am%20not%20leaving%20again%20(Pre-series)/Oneshot.md)
