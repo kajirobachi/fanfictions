@@ -46,7 +46,7 @@
 | Weaknesses | |
 | :------- | :------ |
 | Stubbornness | While loyal, Ahsoka’s dedication can turn into single-mindedness, occasionally causing her to push herself or others beyond healthy limits. |
-|Self-Doubt | Leaving the Jedi Order planted seeds of guilt and self-questioning, especially concerning her relationships with Anakin and Obi-Wan. Her independence sometimes makes her hesitant to ask for help or reconnect with former allies. |
+| Self-Doubt | Leaving the Jedi Order planted seeds of guilt and self-questioning, especially concerning her relationships with Anakin and Obi-Wan. Her independence sometimes makes her hesitant to ask for help or reconnect with former allies. |
 | Attachment | Despite the Jedi’s teachings, she forms strong attachments that can make her vulnerable, especially with people she considers family, with a relationship growing more complex like with Anakin. Her attachment to Anakin has evolved from mentor-student loyalty to something deeper and more complex. This growing connection might blur her ability to remain objective and increase her vulnerability. |
 
 | Internal Conflicts |
