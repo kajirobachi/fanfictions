@@ -124,3 +124,4 @@
 | :------- |
 | Tension and ambivalence may characterize Anakin’s interactions with Obi-Wan. Though he respects Obi-Wan, his guilt complicates their connection. Their scenes could explore Anakin’s internal struggle between admiration and feeling unworthy, highlighting his progress as he learns to accept Obi-Wan’s friendship despite his insecurities. |
 
+[Back](/Star%20Wars/Series/I%20am%20not%20leaving%20again/Planing/README.md)

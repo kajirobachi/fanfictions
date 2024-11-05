@@ -130,3 +130,5 @@
 | :------- |
 | Obi-Wan’s role as a bridge between Ahsoka and Anakin creates opportunities for him to challenge Ahsoka’s beliefs, while Ahsoka’s reflections on the Order can nudge him toward self-reflection too. They might share a somber camaraderie, bound by their concern for Anakin. |
 | Obi-Wan might serve as a grounding presence for Ahsoka, offering advice or caution when he notices her attachment. He may gently remind her of the need for balance, highlighting her struggle between her feelings and her sense of responsibility. |
+
+[Back](/Star%20Wars/Series/I%20am%20not%20leaving%20again/Planing/README.md)

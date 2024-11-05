@@ -5,6 +5,7 @@ Here you can view all the stories written for the "Star Wars" Fandom:
 ## Oneshots
 
 ## Series
+- [I am not leaving again](/Star%20Wars/Series/I%20am%20not%20leaving%20again/README.md)
 
 ## Pre-series Oneshots
 - [I am not leaving again](/Star%20Wars/Oneshots/I%20am%20not%20leaving%20again%20(Pre-series)/README.md)
