@@ -9,5 +9,6 @@ If you're interested in the planing phase of this fic, then click the following 
 - [Planing](/Star%20Wars/Series/I%20am%20not%20leaving%20again/Planing/README.md)
 
 # Series
+- [Chapter 1 - Reunion](/Star%20Wars/Series/I%20am%20not%20leaving%20again/Chapter%201%20-%20Reunion.md)
 
-- [Overview](/Star%20Wars/README.md)
+[Overview](/Star%20Wars/README.md)
