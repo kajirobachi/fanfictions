@@ -128,7 +128,7 @@ Obi-wan ended his story, the sadness once again returned. Ahsoka was baffled, he
 
 “What? Why? He needs you too, he needs both of us.”
 
-“Maybe, but I feel that right now he rather needs you by his side, your bond is different than ours, not stronger per sei but differently important. You know him well, even better than I do in some respects, so I think you should be the one. He will open up to you not to me. Not yet. He feels he has betrayed me, which isn’t the case, but I won’t be able to convince or help him like this. So please, go.”
+“That may be true, but I feel that right now he rather needs you by his side, your bond is different than ours, not stronger per sei but differently important. You know him well, even better than I do in some respects, so I think you should be the one. He will open up to you not to me. Not yet. He feels he has betrayed me, which isn’t the case, but I won’t be able to convince or help him like this. So please, go.”
 
 She didn’t know what to say, so she just stared.
 

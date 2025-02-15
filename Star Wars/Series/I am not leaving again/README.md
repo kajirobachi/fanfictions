@@ -70,5 +70,6 @@ If you're interested in the planing phase of this fic, then click the following 
 
 # Series
 - [Chapter 1 - Reunion](/Star%20Wars/Series/I%20am%20not%20leaving%20again/Chapters/Chapter%201%20-%20Reunion/README.md)
+- [Chapter 2 - Tension](/Star%20Wars/Series/I%20am%20not%20leaving%20again/Chapters/Chapter%202%20-%20Tension/README.md)
 
 [Overview](/Star%20Wars/README.md)
